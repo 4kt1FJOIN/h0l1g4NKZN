@@ -1,7 +1,16 @@
-# 🎯 TARAFBET 2025
+# HOLİGANBET GÜNCEL ADRES
 
-💥 En güncel giriş adresi, bonus fırsatları ve özel kampanyalarla Tarafbet seni bekliyor!
+# <a href="https://cutt.ly/PrET75Bw" title="Tarafbet Giriş Adresi">🔗 Tarafbet Giriş İçin Hemen Tıklayın!🔗</a>
 
-[![Tarafbet Giriş](https://resmim.net/cdn/2025/07/04/TGYQVo.jpg)](https://holigonbet1197.com/tr.php?aff=7215FA)
+<a href="https://holigonbet1197.com/tr.php?aff=7215FA" title="Holiganbet Bonus Fırsatları">
+    <img src="https://i.ibb.co/5K7Ks6w/zzzz3.gif" alt="Holiganbet Bonus Kazan" style="max-width:100%; height:auto; border-radius:8px;">
+</a>
+<div class="description">
 
-🔗 [Hemen Giriş Yap](https://holigonbet1197.com/tr.php?aff=7215FA)
+<a href="https://resmim.net/"><img src="https://resmim.net/cdn/2025/07/04/TGYQVo.jpg" alt="resim yükle" border="0" /></a>
+
+# <a href="https://cutt.ly/PrET75Bw" title="Tarafbet Giriş Adresi">🔗 Tarafbet Giriş İçin Hemen Tıklayın!🔗</a>
+ 
+# 💢 Tarafbet , her geçen gün büyüyen kullanıcı kitlesi ile sektördeki yerini sağlamlaştırıyor.  💢
+
+<a href="https://resmim.net/"><img src="https://resmim.net/cdn/2025/06/23/TQMTnG.jpg" alt="resim yükle" border="0" /></a>
